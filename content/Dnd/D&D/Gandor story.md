@@ -1,0 +1,15 @@
+Beneath the boughs of ancient trees and the quiet whispers of the forest, I greet you, weary travelers. I am known in these silent woods as Galdor Windspeak, a humble servant of nature’s will and a guardian of her secrets. My tale is one of sorrow and seclusion, a thread spun from the fabric of a life once devoted to the healing arts within the verdant embrace of my homeland, far from the shadows that dwell here.
+
+In those bygone days, I stood as a beacon of hope in my village, a tranquil haven where the laughter of children mingled with the songs of the morning birds. It was there, amid the bloom of life, that I mastered the delicate dance of herbology and the gentle touch of healing magic.
+
+But fate, as fickle as the wind through the leaves, brought upon us a plague of shadows, a malady that slipped through my fingers like the finest sands. Despite the arsenal of remedies at my command, the scourge spread unchecked, its tendrils wrapping around the heart of my community, sparing neither the young nor the old. In despair, with the heavy burden of my perceived failure, I chose the path of solitude, venturing deep into the embrace of the woods, lest I bring harm to another soul.
+
+Now, in the twilight of years that have turned my hair to silver and my memories to echoes, I stand as the solitary sentinel against the encroaching darkness. I walk where others dare not, whispering the old words that keep at bay those that would corrupt the purity of this place. It is said that a benevolent spirit once tended to these lands; in its absence, I have become the keeper of its legacy.
+
+But the land speaks, you see, of a restlessness beneath the earth, of seals weakening and evils long forgotten stirring in their slumber. Here, upon this sacred ley line upon which my humble hermitage rests, I gaze into the beyond, seeking signs and portents that herald the coming storm.
+
+The weight of years bears down upon me, and I am but one, a keeper of flames that flicker and threaten to extinguish. I seek aid, not for glory, but for the continuance of the natural order that has graced these woods since time immemorial. In exchange for a strong arm and brave heart, I offer the knowledge of the ancients, the secrets of herb and spell that have long been my companions.
+
+Yet, let not your hearts be drawn to haste or your minds to unguarded thoughts, for the forest hides treasures and threats in equal measure. Be wary of where your feet may tread, for the roots of these trees run deep, entwined with the fates of those who seek the mysteries they guard.
+
+Come, let us share in the warmth of my hearth, and speak of the morrow. For in partnership, perhaps we can turn the tide, sealing away once more what should not walk beneath the sun.
